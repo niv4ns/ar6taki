@@ -3,4 +3,4 @@
 
 c + h always! - PLS INT!! ^_^
 
-socials linked in caard
+socials linked to caard
