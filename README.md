@@ -2,6 +2,6 @@
 
 he / him - esfp 7w6
 
-c + h always! - PLS INT!! ^_^
+c + h always allowed! PLS INT!! ^_^
 
 usually quiet / offtab, w2i!
