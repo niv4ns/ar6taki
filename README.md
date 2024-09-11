@@ -2,7 +2,7 @@
 
 》* 。 • ˚ ˚ ˛ * 。° 。 • ˚《
 
-he / him - esfp 7w6 - fictkin
+he / him - esfp 7w6 - kinnie
 
 c + h always allowed! PLS INT!!  (ﾉ´ヮ´)ﾉ*:･ﾟ✧
 
