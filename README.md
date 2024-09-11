@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/67f4a4ea-be2a-4b53-964e-15677ca27a9f)
 
-he / him - esfp 7w6
+he / him - esfp 7w6 - fictkin
 
 c + h always allowed! PLS INT!! (ﾉ´ヮ´)ﾉ*:･ﾟ✧
 
