@@ -4,4 +4,4 @@ he / him - esfp 7w6
 
 c + h always! - PLS INT!! ^_^
 
-socials linked to caard
+usually quiet / offtab, w2i!
