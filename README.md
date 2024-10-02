@@ -6,6 +6,6 @@ he / him - isfp 5w4 - kinnie
 
 c+h always allowed! pls int!!  (ﾉ´ヮ´)ﾉ*:･ﾟ✧
 
-usually quiet / offtab, w2i!
+usually quiet / offtab
 
 
