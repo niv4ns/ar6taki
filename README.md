@@ -2,9 +2,9 @@
 
 》* 。 • ˚ ˚ ˛ * 。° 。 • ˚《
 
-he / him - isfp 7w6 - kinnie
+he / him - isfp 5w4 - kinnie
 
-c+h always allowed! PLS INT!!  (ﾉ´ヮ´)ﾉ*:･ﾟ✧
+c+h always allowed! pls int!!  (ﾉ´ヮ´)ﾉ*:･ﾟ✧
 
 usually quiet / offtab, w2i!
 
